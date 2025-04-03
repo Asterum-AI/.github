@@ -1,1 +1,1 @@
-# Asterum.ai
+# Asterum.com
